@@ -18,10 +18,25 @@ This subject confuses me. Im not sure until what point I have the choice of beco
 
 ### Personality tests
 * Big five
-
   + [Jordan Peterson - Big Five](/tests/understand-myself-the-big-five-aspects-scale.pdf)
 
+* 16 personalities
+  + [Debater](https://www.16personalities.com/entp-personality)
+
+#### Earth/Planet
+
+#### Politics
+
+#### Love
+
+#### Family
+
+#### Purpose
+
+#### Fantasies
+
 # Who am I, now
+* Im not aware of who am I, I think I know, but Im clueeless in many areas
 * I relate my self esteem to what people think of me or how they treat me. The close they are to me, the more it affects me. 
 * Humans are superficial and they feel attracted to "beautiful things"
 * I relate my selfesteem to my success on different challenges
@@ -38,7 +53,17 @@ This subject confuses me. Im not sure until what point I have the choice of beco
 * Im not councious of some of my own behaviour
 * I have a less than good physical presence
 * My memory has a bad performance
-* we fall in love
+* I fall in love
+* Im erratic
+* Im inconsistant
+* Im undiscipline
+* Im emotionaly inmature
+* Im physically attracted to young woman
+* Sexual atractiveness is due to mainly pshysical appearance. Personality traits are secondary
+* My selfestem drives me to chase for womans validation.
+* Im obsesive if I dont get what I want, especially towards woman attention.
+* Im an extravert
+* I value more rationality than feelings
 
 # Who do I choose to become
 * Self esteem is independant on external factors
